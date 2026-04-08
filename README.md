@@ -15,9 +15,11 @@ Here are some ideas to get you started:
 -->
 
 
-`┊　　  ̣̣̥ ‎ ͜͝ 𓐇　　　　![1000004750](https://github.com/user-attachments/assets/9b08e677-4b18-4726-b365-f96923422a5a)
+`┊　　  ̣̣̥ ‎ ͜͝ 𓐇　　✎ᝰ.　﹕   ![IMG_1902](https://github.com/user-attachments/assets/3667b34f-f127-4c48-9529-f81d5c1aa5a1)﹕
+　
+
  ◞　　ᣟ༷<br>
-![1000004748](https://github.com/user-attachments/assets/4956e02b-3e39-4c90-a866-fcd28db2daed)
-𑙒 ݃　　Puppy  ͜͝ |།ིྀ ͝ 　Seven𓈒　 ྀ　  ˙<br>
+![1-E881-C56-9-A89-459-B-8305-E3-A48-D5-A0-A04](https://github.com/user-attachments/assets/af729abf-d9ef-474a-99ad-770d9f7c63a4)
+𑙒 ݃　﹕　Bambi𓏵   ͜͝ |།ིྀ ͝ 　﹕Arlo𓈒　﹕ ྀ　  ˙<br>
 ⏖ † ྀི  ![1000004749](https://github.com/user-attachments/assets/9de71db0-5ad6-438d-8310-9296f6da37fb)
-　𓏴ྀི 　　Teen　　◝ ͜ ̣̣̥་།<br>
+　𓏴ྀི 　　3𓏵Teen　　◝ ͜ ̣̣̥་།<br>
