@@ -13,4 +13,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+ $$\color{brown}{\text{ I want a hundred of your time, }}$$
+
+
 <img width="2048" height="1819" alt="Untitled393_20260715184435 (1)" src="https://github.com/user-attachments/assets/c5f8fd2f-d08d-499a-acee-19ea7b07c13b" />
+
+  $$\color{brown}{\text{ you're mine. }}$$
