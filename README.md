@@ -13,6 +13,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-
-
-wip trust
+<img width="1000" height="1000" alt="Untitled392_20260715141644" src="https://github.com/user-attachments/assets/5d821c67-bfdf-4fac-97d9-3094a947b0f9" />
