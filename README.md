@@ -16,7 +16,8 @@ Here are some ideas to get you started:
 
  $$\color{brown}{\text{ I want a hundred of your time, }}$$
 
+ <img width="1000" height="850" alt="Untitled398_20260717164045" src="https://github.com/user-attachments/assets/96db4faa-f6e7-41af-bb84-29f01d168248" />
 
-<img width="2048" height="1819" alt="Untitled393_20260715184435 (1)" src="https://github.com/user-attachments/assets/c5f8fd2f-d08d-499a-acee-19ea7b07c13b" />
 
   $$\color{brown}{\text{ you're mine. }}$$
+
