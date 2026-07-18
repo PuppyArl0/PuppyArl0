@@ -14,10 +14,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
- $$\color{brown}{\text{ I want a hundred of your time, }}$$
-
- <img width="1000" height="850" alt="Untitled398_20260717164045" src="https://github.com/user-attachments/assets/96db4faa-f6e7-41af-bb84-29f01d168248" />
-
-
-  $$\color{brown}{\text{ you're mine. }}$$
+wip ill do something soon
 
