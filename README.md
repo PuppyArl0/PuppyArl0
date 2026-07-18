@@ -14,6 +14,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-wip ill do something soon
- pray.lol a wip aswell im lazy
+wip ill do something soon (pray.lol a wip aswell im lazy)
 
