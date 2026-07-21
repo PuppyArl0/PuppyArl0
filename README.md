@@ -14,7 +14,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-wip ill do something soon (prey.lol a wip aswell im depressed asf)
-
-
-<img width="398" height="398" alt="Two Time Shocked GIF - Two time Shocked Surprised - GIF&#39;leri Keşfedin ve Paylaşın" src="https://github.com/user-attachments/assets/a4391de1-366c-408c-b310-8f5697fd10ed" />
+wow this repository is DEAD now
