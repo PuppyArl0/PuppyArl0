@@ -13,5 +13,17 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-
-wow this repository is DEAD now
+imtesting stuff here now Ok
+<br>
+<br>
+<br>
+<br>
+</p>
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=medkiss&color=ff8cb2&style=flat&label=Healed" alt="Views">
+</p>
+<br>
+<p align="center">
+<br>
+<br>
+<br>
